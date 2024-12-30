@@ -6,7 +6,7 @@
 
 -💞️ I’m looking to collaborate on projects related to foundation level data collection project.
 
--📫 Connect with me on https://www.linkedin.com/in/aman-pandey-b0137632b/
+-📫 Connect with me on https://www.linkedin.com/in/aman-pandey-iitm/
 
 -😄 Pronouns: He/Him
 
